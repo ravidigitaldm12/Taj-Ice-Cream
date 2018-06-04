@@ -1,0 +1,2 @@
+# Taj-Ice-Cream
+Taj Ice Cream is very popular and famous Ice Cream parlour in Mumbai Because of its Delicious and tastes Ice Cream which is made in Homemade Sancha (modules) With Fresh Fruits and Dry Fruits which give Different and Fresh taste to Ice Cream. This one can have as dessert ideas or as Snacks to make their Taste Buds. https://indiafoodnetwork.in/food-stories/eat-from-the-heart-taj-ice-cream/
